@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Digital Forensic**
 
-- 👨‍💻 All of my blogs are available at [https://medium.com/@mustafayurtalan223)
+- 👨‍💻 All of my blogs are available at https://medium.com/@mustafayurtalan223
 
 - 📫 How to reach me **www.linkedin.com/in/mustafa-yurtalan-688a24179**
 
